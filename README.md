@@ -1,6 +1,8 @@
 # ZTuoExchange-Old
  ZTuoExchange-Old
  
+QQ群：https://shang.qq.com/wpa/qunwpa?idkey=80efe8528fa54a30bc9b8c88eee497a4485dd95a3490b3471494f319db55accc
+
 不再更新
 
 No longer update
